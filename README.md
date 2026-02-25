@@ -5,6 +5,6 @@
 <br> 𓉸　　𓈒 　    shanyusha   　𐑞 <br>
      ◜　　　　 ou　shane　　16 　　he　&　him <br>
      ¦　　　 taken by my rozy since　　　  O1 . O3 . 2O26 <br>
-     ◟　　　　 i dont care what people ship　&　i enjoy complex ships <br>
+     ◟　　　　 i enjoy darkfiction <br>
     
 *all links are on my guns.lol*
